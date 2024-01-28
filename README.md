@@ -1,2 +1,2 @@
 # dream
-what we all think
+what we all want
